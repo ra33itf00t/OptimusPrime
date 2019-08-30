@@ -14,7 +14,7 @@ what would you rather do ? seem nuts & extract "l'ecume du tumulte" for a greate
 
 The fucks un/given will be relegated to the yet another strata of human experience ; a gift for those present, an homage to those past & a wonder for those still to come.
 
-How I do what I do is my business, the whole point is encapsulation, a glimpse behind the wizard's curtain may shock some innocent souls but believe you me I've seen, been subject to & am fully aware of far darker means that the very scum of this earth use & abuse constantly & continuously to maintain the upper hand, it's addiction induced spiritual imbalance & there I was with a shit ton of dynamite laying everywhere, fuck it blow it up.
+How I do what I do is my business, the whole point is encapsulation, a glimpse behind the wizard's curtain may shock some innocent souls but believe you me I've seen, been subject to, guilty of indulging in & am fully aware of far darker means that the very scum of this earth use & abuse constantly & continuously to maintain the upper hand, it's addiction induced spiritual imbalance & there I was with a shit ton of dynamite laying everywhere, fuck it blow it up.
 level the playing field with a supernova,
 dig a trench first sure.
 
