@@ -29,3 +29,6 @@ My hope is that it will be worthwhile.
 I'll do my very best, as for the rest,
 We'll have to see how it plays out.
 May you live long and prosper.
+
+& I do apologize for the eccentricity, the narcissism, the absurdity, the apethatic scuminess so on & so forth.
+his is my confession, at least the version of the truth I can attest to, but keep in mind that if it didn't come from my very soul it wouldn't work, what I feel is as real as real can be, the outcome of it is dependant on factors out of my control for the moment, but please understand, I need all the strength I can gather, I may sound like a pretensious, self agrandizing dick but unless I have an audience with someone, face to face & paint them a picture of my perspective it wouldn't make sense, when I said it's complicated I really meant it.
